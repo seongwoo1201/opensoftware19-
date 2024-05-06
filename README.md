@@ -1,2 +1,2 @@
 # opensoftware19team
-화이팅
+여기는 계시판 용!!
